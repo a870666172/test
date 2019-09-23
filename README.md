@@ -1,16 +1,9 @@
 小姐姐直(huang)播下载：
-=======
-
-[注意事项：有可能手机自带的浏览器打不开请用第三方的浏览器]
---------------- 
-
-[(更多优质平台努力寻找中)Telegram频道欢迎关注:https://t.me/huangboAPP ]
-----------
-
-以下平台几乎每个都有免费大秀观看 (下载有问题请联系Telegram频道管理员)  
-
-* 注意:下载时如果名字不对不用担心这类平台经常换网址和名字
-
+------
+[注意事项：有可能手机自带的浏览器打不开请用第三方的浏览器]  
+[(更多优质平台努力寻找中)Telegram频道欢迎关注:https://t.me/huangboAPP ]  
+* 以下平台几乎每个都有免费大秀观看 (下载有问题请联系Telegram频道管理员)  
+* 注意:下载时如果名字不对不用担心这类平台经常换网址和名字   
 * 1.梦幻(好嗨哟) [点击下载](http://hhy2.generalpage.xyz/index.html?topuserid=2245833)  
 * 2.花妃子 [点击下载](http://f.xt9981.com/u/1500721)  
 * 3.金鱼 [点击下载](http://opsh.kakagw.com/index.html?topuserid=1189435)  
@@ -22,14 +15,12 @@
 * 9.亚米 [点击下载](http://ym.cndamai.xyz/index.html?topuserid=2693435)  
 * 10.夜妖姬 [点击下载](https://dis.18c70.cn/app.php/OA==/5gmx)  
 * 11.茄子 [点击下载](https://h5.caihongpuzi.com/share/index_dawn.html?puid=PUID2020618185)  
-* 12.红娘 [点击下载](http://fenfareg.xzdz2.cn?key=1774195)   
+* 12.红娘 [点击下载](http://fenfareg.xzdz2.cn?key=1774195) 
 
 以下是可控主播体内跳蛋的平台(很多都是免费的):
-------  
-
+--------  
 * 13.蜜桃 (关注Telegram频道后在频道内下载:https://t.me/huangboAPP)  
 * 14.卡哇伊 (关注Telegram频道后在频道内下载:https://t.me/huangboAPP)  
-
 
 Telegram下载地址1 苹果安卓应用商店搜索“Telegram”既可下载  
 ------
