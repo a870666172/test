@@ -2,24 +2,23 @@
 ------
 [注意事项：有可能手机自带的浏览器打不开请用第三方的浏览器]  
 [(更多优质平台努力寻找中)Telegram频道欢迎关注:https://t.me/huangboAPP ]  
-* 以下平台几乎每个都有免费大秀观看 (下载有问题请联系Telegram频道管理员)  
-* 注意:下载时如果名字不对不用担心这类平台经常换网址和名字   
-* 1.梦幻(好嗨哟) [点击下载](http://hhy2.generalpage.xyz/index.html?topuserid=2245833)  
-* 2.花妃子 [点击下载](http://f.xt9981.com/u/1500721)  
-* 3.金鱼 [点击下载](http://opsh.kakagw.com/index.html?topuserid=1189435)  
-* 4.可爱多 [点击下载](https://caihuyi.com/test.php?pid=711922)  
-* 5.七秒鱼 [点击下载](http://1.yqtui1.com/u/2614636)  
-* 6.爱情海(小米粒) [点击下载](https://ewt.xyz/wx0o.html)  
-* 7.小天仙(心上人) [点击下载](https://euy.xyz/1gynl.html)  
-* 8.小彤颜 [点击下载](http://xty.34549.cn/268132)  
-* 9.亚米 [点击下载](http://ym.cndamai.xyz/index.html?topuserid=2693435)  
-* 10.夜妖姬 [点击下载](https://dis.18c70.cn/app.php/OA==/5gmx)  
-* 11.茄子 [点击下载](https://h5.caihongpuzi.com/share/index_dawn.html?puid=PUID2020618185)  
-* 12.红娘 [点击下载](http://fenfareg.xzdz2.cn?key=1774195) 
-
-以下是可控主播体内跳蛋的平台(很多都是免费的):
+* 注意:下载有问题请联系Telegram频道管理员
+* 注意:下载时如果名字不对不用担心这类平台经常换网址和名字  
+可控主播体内跳蛋的平台(每个都有免费大秀观看):
 --------  
-* 13.蜜桃 (关注Telegram频道后在频道内下载:https://t.me/huangboAPP)  
+* 1.蜜桃直播 [点击下载](http://www.mitaotv.live/?uid=fe8d2279589290f2)
+* 2.梦幻(好嗨哟) (关注Telegram频道后在频道内下载:https://t.me/huangboAPP)   
+* 3.花妃子 (关注Telegram频道后在频道内下载:https://t.me/huangboAPP)   
+* 4.金鱼 (关注Telegram频道后在频道内下载:https://t.me/huangboAPP)   
+* 5.可爱多 (关注Telegram频道后在频道内下载:https://t.me/huangboAPP)   
+* 6.七秒鱼 (关注Telegram频道后在频道内下载:https://t.me/huangboAPP)   
+* 7.爱情海(小米粒) (关注Telegram频道后在频道内下载:https://t.me/huangboAPP)   
+* 8.小天仙(心上人) (关注Telegram频道后在频道内下载:https://t.me/huangboAPP)   
+* 9.小彤颜 (关注Telegram频道后在频道内下载:https://t.me/huangboAPP)   
+* 10.亚米 (关注Telegram频道后在频道内下载:https://t.me/huangboAPP)   
+* 11.夜妖姬 (关注Telegram频道后在频道内下载:https://t.me/huangboAPP)   
+* 12.茄子 (关注Telegram频道后在频道内下载:https://t.me/huangboAPP)   
+* 13.红娘 (关注Telegram频道后在频道内下载:https://t.me/huangboAPP)   
 * 14.卡哇伊 (关注Telegram频道后在频道内下载:https://t.me/huangboAPP)  
 
 Telegram下载地址1 苹果安卓应用商店搜索“Telegram”既可下载  
